@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @dekaje
+- 👀 I’m interested in IT technology, development, network and design.
+- 🌱 I’m currently learning ...
+- 📫 How to reach me? - Mailto: dennis@denniskamp.dk
